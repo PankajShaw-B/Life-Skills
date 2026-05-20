@@ -25,16 +25,16 @@ I know I am excited when I feel full of energy and positive vibes. The signs inc
 
 ## Question 4:
 ### Paraphrase the Sleep is your Superpower video in your own words in brief. Only the points, no explanation.
-1. Sleep acts like a "save button" for your memories.[cite: 1]
-2. Getting good sleep prepares your brain to learn.[cite: 1]
-3. Sleep makes your immune system strong to fight sickness.[cite: 1]
-4. Losing sleep increases the risk of heart problems.[cite: 1]
-5. Not getting enough sleep can age your body.[cite: 1]
-6. You cannot "catch up" on lost sleep.[cite: 1]
-7. Go to bed and wake up at the exact same time every day.[cite: 1]
-8. Sleep in a cool room, ideally around 65°F or 18°C.[cite: 1]
-9. Avoid alcohol, late caffeine, and daytime naps.[cite: 1]
-10. If you can't sleep, get out of bed until you feel sleepy.[cite: 1]
+1. Sleep acts like a "save button" for your memories
+2. Getting good sleep prepares your brain to learn
+3. Sleep makes your immune system strong to fight sickness
+4. Losing sleep increases the risk of heart problems
+5. Not getting enough sleep can age your body
+6. You cannot "catch up" on lost sleep
+7. Go to bed and wake up at the same time every day
+8. Sleep in a cool room, ideally around 65°F or 18°C
+9. Avoid alcohol, late caffeine, and daytime naps
+10. If you can't sleep, get out of bed until you feel sleepy
 
 ## Question 5
 ### What are some ideas that you can implement to sleep better?
@@ -49,14 +49,14 @@ I know I am excited when I feel full of energy and positive vibes. The signs inc
 
 ## Question 6
 ### Paraphrase the video - Brain Changing Benefits of Exercise. Minimum 5 points, only the points.
-* Instantly boosts mood[cite: 1]
-* Improves focus and attention[cite: 1]
-* Speeds up reaction times[cite: 1]
-* Creates new brain cells[cite: 1]
-* Improves long-term memory[cite: 1]
-* Increases brain volume and strength[cite: 1]
-* Protects against Alzheimer's and dementia[cite: 1]
-* Requires only 30 minutes, 3 to 4 times a week[cite: 1]
+* Instantly boosts mood
+* Improves focus and attention
+* Speeds up reaction times
+* Creates new brain cells
+* Improves long-term memory
+* Increases brain volume and strength
+* Protects against Alzheimer's and dementia
+* Requires only 30 minutes, 3 to 4 times a week
 
 ## Question 7
 ### What are some steps you can take to exercise more?
